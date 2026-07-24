@@ -1,4 +1,5 @@
-## Hi there 👋
+## Eu sei brincar <img width="250" height="280" alt="despicablememinionsGIF" src="https://github.com/user-attachments/assets/2d0db831-2708-4eb4-b02d-0a9098b23d0b" />
+
 
 <!--
 **pscheco/pscheco** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
