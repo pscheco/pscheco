@@ -1,4 +1,5 @@
-## Eu sei brincar <img width="250" height="280" alt="despicablememinionsGIF" src="https://github.com/user-attachments/assets/2d0db831-2708-4eb4-b02d-0a9098b23d0b" />
+<img width="237" height="185" alt="HappyJonahHillGIFbyWeTV" src="https://github.com/user-attachments/assets/9d6009ad-6691-478c-b1e8-8b0a9f8f322b" />
+
 
 
 <!--
