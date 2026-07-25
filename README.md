@@ -1,4 +1,4 @@
-<img width="1000" height="500" alt="quando eu falo bora ela fala bill quando eu falo la ela fala la ele" src="https://media1.tenor.com/m/AxUkFJM6bxEAAAAd/black-hole-singularity.gif" />
+<img width="1000" height="600" alt="quando eu falo bora ela fala bill quando eu falo la ela fala la ele" src="https://media1.tenor.com/m/AxUkFJM6bxEAAAAd/black-hole-singularity.gif" />
 
 
 
